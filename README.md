@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **DM ME**
 
-- ⚡ Fun fact **Funny**
+- ⚡ Fun fact **ModiJii**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
